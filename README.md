@@ -1,0 +1,1 @@
+"RESIDANAT DR: SADOU BILLEL," offre une interface élégante et professionnelle. Elle permet de suivre la progression des cours et des QCM grâce à un système de suivi interactif. Elle se distingue par son design moderne, son organisation intuitive et ses statistiques dynamiques qui motivent à avancer.
